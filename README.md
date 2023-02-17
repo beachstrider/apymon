@@ -1,4 +1,4 @@
-# APYMON
+# APYMON REVOLUTION
 
 ![image](https://user-images.githubusercontent.com/48445639/219715022-9d6753cc-9ed1-4086-b133-2be62d6c1acf.png)
 
